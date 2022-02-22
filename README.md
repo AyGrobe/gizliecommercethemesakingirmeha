@@ -1,0 +1,2 @@
+# gizliecommercethemesakingirmeha
+Selamün aleyküm
